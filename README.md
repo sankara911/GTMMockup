@@ -1,2 +1,2 @@
 # GTMMockup
-Various ideas, curiosity dabbles and stuff
+Various ideas, curiosity dabbles and stuff..
